@@ -3,7 +3,7 @@
 
     Ways of Making Friends
 
-    Everyone needs friends so how to make true friends is very important to to anybody. To make friends you must be friendly to others. A smile is like a magnet that draws people. Smile at others and you are always sure to get a smile in return. If you don't agree with others on certain matter don't argue but discuss with them. You should think more of others than of yourselves.
+    Everyone needs friends so how to make true friends is very important to anybody. To make friends you must be friendly to others. A smile is like a magnet that draws people. Smile at others and you are always sure to get a smile in return. If you don't agree with others on certain matter don't argue but discuss with them. You should think more of others than of yourselves.
     Finally, A true friend should be faithful and reliable. Don't believe those who leave their friends when they are in trouble because "A friend in need is a friend indeed."
 
     交友的方式
@@ -13,6 +13,6 @@
 
 #### chapter 36 My Best Friend 1.介绍你的一位好朋友；2.描述你们的友谊。
 
-    I have a best friend named Li Ning, whose English name is Wilson. He is 25 years old now. We’ve been friends since we were in primary school. He is a kind person who is always ready to help others. He presently works with a joint-venture company, which has cooperative relations with the company I serve. Therefore, we have many opportunities to meet each other frequently to talk about both our work and our life. Because we both like traveling very much, if we are free, we will travel together at least once a year. I hope we will be good friends forever.
+    I have a best friend named Li Ning, whose English name is Wilson. He is 25 years old now. We’ve been friends since we were in primary school. He is a kind person who is always ready to help others. He presently works with a company, which has cooperative relations with the company I serve. Therefore, we have many opportunities to meet each other to talk about both our work and our life. Because we both like traveling very much, if we are free, we will travel together at least once a year. I hope we will be good friends forever.
 
     我有一个最好的朋友叫李宁，他的英文名字叫威尔逊。他现在25岁了。我们从小学起就是朋友。他是一个乐于助人的好人。他目前在一家合资公司工作，该公司与我服务的公司有合作关系。因此，我们有很多机会经常见面，谈论我们的工作和生活。因为我们都很喜欢旅行，如果我们有空，我们每年至少一起旅行一次。我希望我们永远是好朋友。
