@@ -1,0 +1,2 @@
+#### 1．你喜欢的工作；2．你喜欢的理由。
+I like to be a teacher. Three reasons have led me to choose this job. First, teaching is learning. To make my lectures more constructive and stimulating, I have to read more books, explore new knowledge and gain a better understanding of the world, which is the very thing I enjoy in my life. Second, teaching means freedom and independence. As a teacher, I’m free to use my own ideas and make my own decisions. Finally, I like teaching because it offers certain peace of mind. All in all, the reasons above make me like teaching best.
